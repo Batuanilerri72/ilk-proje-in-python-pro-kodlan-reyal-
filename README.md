@@ -1,0 +1,1 @@
+# ilk-proje-in-python-pro-kodlan-reyal-
